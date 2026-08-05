@@ -1,5 +1,6 @@
  <div align=center
  
+𝙧𝙚𝙖𝙙 𝙗𝙮𝙞... [𝓅𝓇𝑜𝓃𝑜𝓊𝓈 𝓅𝒶𝑔𝑒](https://en.pronouns.page/@Mimi-prettycure)
 
 ![Image Alt](https://64.media.tumblr.com/adec81fd2dbd54f9e86fa574ebab52ea/eae635feeff6a844-bf/s500x750/d2e2617a3b9c543194a1646e45afff33346d37da.gifv)
    
